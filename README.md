@@ -1,4 +1,6 @@
-Hi, I’m @WarpOverload. Let me get to the point, I’m interested in everything aerospace, meteorology, nuclear engineering, and vintage computing/computers. I’m currently learning Python, HTML, CSS, and a bit of JS. You can contact me at my discord, WarpOverload#8344.
+professional idiot @ banana.industries
+
+email: warp@banana.industries
 
 
 
